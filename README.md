@@ -1,5 +1,5 @@
 # Receitas da vovó
-## Six seven
+## Six sevens
 - Bolinha de chuva
 - Bolo do Cenoura
 - Bolo de thiago
